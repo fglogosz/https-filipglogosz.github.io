@@ -1,1 +1,0 @@
-# https-filipglogosz.github.io
